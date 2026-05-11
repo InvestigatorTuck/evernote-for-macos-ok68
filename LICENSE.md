@@ -1,4 +1,4 @@
-
+Enhance Evernote for macOS with professional Script for Evernote for macOS - version history and tags, the #1 script. Includes version history and tags for a smoother experience.
 
 
 
